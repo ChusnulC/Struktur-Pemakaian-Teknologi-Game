@@ -1,0 +1,1 @@
+# Struktur-Pemakaian-Teknologi-Game
